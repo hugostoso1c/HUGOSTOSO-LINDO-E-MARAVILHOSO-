@@ -1,2 +1,2 @@
 # HUGOSTOSO-LINDO-E-MARAVILHOSO-
-o Ernandes mandou eu criar conta 
+o Ernandes mandou eu criar conta
